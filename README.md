@@ -25,4 +25,5 @@ Description
    ╰─────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
 bleeeehh
-star.gif
+
+![star](https://github.com/user-attachments/assets/e93d29e5-6f07-4166-8bd8-5c3e6464494c)
