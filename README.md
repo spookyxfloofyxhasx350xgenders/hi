@@ -5,8 +5,9 @@ Description
       /)    /)
     (｡•ㅅ•｡)〝₎₎ Intro template! ✦₊ ˊ˗ 
 . .╭∪─∪────────── ✦ ⁺.
+(i_have_DID_btw)
 . .┊ ◟﹫ Name : toxicity
-. .┊﹒𐐪 Age : wont say!
+. .┊﹒𐐪 Age :15-21
 . .┊ꜝꜝ﹒Pronouns : he/xe/it/they/ :]
 . .┊ ⨳゛Sexuality : asexual, omniromantic
 . .┊ ◟ヾ Likes : anime, (one piece attack on titan solo leveling mob psycho 100 ect) art,proshipping,GIRLSSS<3<3
