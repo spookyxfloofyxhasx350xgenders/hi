@@ -1,7 +1,7 @@
 # hi
 
 MY ATAVBOOK https://spookyfloofy.atabook.org/
-<img width="600" height="22" alt="image" src="https://github.com/user-attachments/assets/4cc66df7-c693-4de8-9d9f-ccb6b4bdf382" />
+
 <img width="600" height="22" alt="image" src="https://github.com/user-attachments/assets/331faaf3-b4fe-4384-bbdf-7761a53e26be" />
 
 
@@ -29,6 +29,7 @@ MY ATAVBOOK https://spookyfloofy.atabook.org/
    ╰─────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
 bleeeehh
+
 <img width="600" height="22" alt="image" src="https://github.com/user-attachments/assets/4cc66df7-c693-4de8-9d9f-ccb6b4bdf382" />
-<img width="600" height="22" alt="image" src="https://github.com/user-attachments/assets/f0f36ee3-0053-4cb5-9ace-6f11d4c12caf" />
+
 
