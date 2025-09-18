@@ -1,6 +1,7 @@
 # hi
 this-is-kinda-an-intro-but-my-spacebar-is-broken
 MY ATAVBOOK https://spookyfloofy.atabook.org/
+https://missskunky-graphics.neocities.org/assets/graphics/mine/dividers/divider-proship.gif
 
 ![star](https://github.com/user-attachments/assets/e93d29e5-6f07-4166-8bd8-5c3e6464494c)
 
