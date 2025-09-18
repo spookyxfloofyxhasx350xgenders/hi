@@ -10,9 +10,12 @@ MY ATABOOK https://spookyfloofy.atabook.org/
 
 
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
-      /)    /)
+
+
+    /)    /)
     (｡•ㅅ•｡)〝₎₎ Intro template! ✦₊ ˊ˗
     
+
 . .╭∪─∪────────── ✦ ⁺.
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/19660849-dbab-446f-ae6d-13a68b3834af" />
@@ -41,6 +44,7 @@ MY ATABOOK https://spookyfloofy.atabook.org/
 
 
 . .┊ ◟﹫ Extra : i have DID, autisim, anxiety, OCD, depression, and TT so pls cater and be patieint! i hope i can make you smile! and maybe even a difference in the world someday
+   
    ╰─────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
 bleeeehh
