@@ -1,16 +1,16 @@
 # hi
-this-is-kinda-an-intro-but-my-spacebar-is-broken
+
 MY ATAVBOOK https://spookyfloofy.atabook.org/
 <img width="600" height="22" alt="image" src="https://github.com/user-attachments/assets/4cc66df7-c693-4de8-9d9f-ccb6b4bdf382" />
+<img width="600" height="22" alt="image" src="https://github.com/user-attachments/assets/331faaf3-b4fe-4384-bbdf-7761a53e26be" />
 
-![star](https://github.com/user-attachments/assets/e93d29e5-6f07-4166-8bd8-5c3e6464494c)
 
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
       /)    /)
     (｡•ㅅ•｡)〝₎₎ Intro template! ✦₊ ˊ˗
     
 . .╭∪─∪────────── ✦ ⁺.
-(i_have_DID_btw)
+
 
 . .┊ ◟﹫ Name : toxicity
 
@@ -25,9 +25,10 @@ MY ATAVBOOK https://spookyfloofy.atabook.org/
 . .┊﹒𐐪 Dislikes :  weird textures
 
 
-. .┊ ◟﹫ Extra : i hope i can make you smile! and maybe even a difference in the world someday
+. .┊ ◟﹫ Extra : i have DID, autisim, anxiety, OCD, depression, and TT so pls cater and be patieint! i hope i can make you smile! and maybe even a difference in the world someday
    ╰─────────────  ✦ ⁺.
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
 bleeeehh
+<img width="600" height="22" alt="image" src="https://github.com/user-attachments/assets/4cc66df7-c693-4de8-9d9f-ccb6b4bdf382" />
+<img width="600" height="22" alt="image" src="https://github.com/user-attachments/assets/f0f36ee3-0053-4cb5-9ace-6f11d4c12caf" />
 
-![star](https://github.com/user-attachments/assets/e93d29e5-6f07-4166-8bd8-5c3e6464494c)
