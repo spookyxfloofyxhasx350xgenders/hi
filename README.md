@@ -58,7 +58,7 @@ MY ATABOOK https://spookyfloofy.atabook.org/
 
 . .┊ ◟﹫ Name : toxicity
 
-. .┊﹒𐐪 Age :15-21
+. .┊﹒𐐪 Age :15-21 (this is due to alterss)
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/33447c92-8845-4877-8e43-f492840c24ca" />
 
@@ -66,15 +66,15 @@ MY ATABOOK https://spookyfloofy.atabook.org/
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/b91d08fd-01cd-4001-89f2-56b51cb853c1" />
 
-. .┊ ⨳゛Sexuality : asexual, omniromantic
+. .┊ ⨳゛Sexuality : asexual, omniromantic, panromantic, pangender, transgedner, transmasc, transenby, aroace, demiboy, demifluid, genderfluid, heteroflexible.
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/7f666e58-1e72-4907-b803-021834868adf" />
 
-. .┊ ◟ヾ Likes : anime, (one piece attack on titan solo leveling mob psycho 100 ect) art, proshipping ,GIRLSSS<3<3
+. .┊ ◟ヾ Likes : anime, (one piece attack on titan solo leveling mob psycho 100 ect) art, my friends, being a silly felow, my girlfriend, project sekai, pinterest, spicy noodles
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/71b4e430-cc45-4ed3-9757-6caaef006c82" />
 
-. .┊﹒𐐪 Dislikes :  weird textures
+. .┊﹒𐐪 Dislikes :  weird textures, antis, literaly anyone who discriminates against valid minoroities.
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/316b8624-5822-4f70-9fd7-9332875600d6" />
 
