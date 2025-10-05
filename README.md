@@ -56,7 +56,7 @@ MY ATABOOK https://spookyfloofy.atabook.org/
 
 <img width="400" height="44" alt="image" src="https://github.com/user-attachments/assets/19660849-dbab-446f-ae6d-13a68b3834af" />
 
-. .┊ ◟﹫ Name : toxicity
+. .┊ ◟﹫ Name : toxicity/ proship-cahn /spookyfloofy/ floofy-kun/spooky-kun, chan, san, ect
 
 . .┊﹒𐐪 Age :15-21 (this is due to alterss)
 
