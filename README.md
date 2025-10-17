@@ -1,4 +1,4 @@
-# spookyxfloofyxhasx350xgenders
+#spookyxfloofyxhasx350xgenders
 <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/542a0dcb-6104-4568-a2a7-3a36a4f50cd9" />
 <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/b746da29-1ed3-4253-95bc-37e7ea1e9383" />
 <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/cbb53715-7594-467d-82d1-f180fbd5bce2" />
